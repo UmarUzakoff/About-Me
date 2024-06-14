@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **umar.uzakoff@mail.ru**
 
-- 📄 Know about my experiences [https://portfolio-umar-uzakoff.vercel.app](https://portfolio-umar-uzakoff.vercel.app)
+- 📄 Know about my experiences [https://uzakoff.uz](https://uzakoff.uz)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
