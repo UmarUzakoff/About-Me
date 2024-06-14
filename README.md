@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **umar.uzakoff@mail.ru**
 
-- 📄 Know about my experiences [https://uzakoff.uz](https://uzakoff.uz)
+- 📄 Know about my experiences [uzakoff.uz](uzakoff.uz)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
